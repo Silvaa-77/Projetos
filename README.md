@@ -1,4 +1,4 @@
-### Sejam Bem Vindos ao meu Perfil😇🤟
+### Sejam Bem Vindos ao meu Perfil😇🤟🏼
 
 Meu nome é Alexsandra
 
